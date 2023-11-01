@@ -1,1 +1,0 @@
-# tubasomncu.github.io
